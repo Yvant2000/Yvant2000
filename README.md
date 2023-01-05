@@ -7,9 +7,9 @@ I love **Python**, 🐍\
 I kinda enjoy **C**, 😎\
 I hate **C++** from the bottom of my heart, and he hates me too, so it's like my Kismesis I would say, 🤮\
 Also, **C#** is cool because of **Unity**, 🎮\
-And or course, I support **Rust** supremacy 🦀 !
+And of course, I support **Rust** supremacy 🦀 !
 
 
-If you want to contact me, [Here's my **Discord**](discordapp.com/users/162516519543111680)
+If you want to contact me, [Here's my **Discord**](https://discord.com/users/162516519543111680)
 
 
